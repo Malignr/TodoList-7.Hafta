@@ -1,0 +1,2 @@
+# TodoList-7.Hafta
+MEGA YAZILIM AKADEMİSİ 7.HAFTA GÖREVİ
